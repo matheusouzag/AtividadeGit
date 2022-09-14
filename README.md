@@ -40,7 +40,7 @@ A verdadeira história de como o empresário Oskar Schindler salvou mais de mil 
 
 A defesa e a acusação aposentaram e o júri está para decidir se um jovem hispano-americano é culpado ou inocente de assassinar seu pai. O que começa como um caso simples logo se torna um minidrama.
 
-<img src ="https://media3.giphy.com/media/l0IyooO1w2UxMZHuo/giphy.gif?cid=ecf05e473rie6kjwaglqosymjyeelrfmtdhg7yfntz26hf44&rid=giphy.gif&ct=g">
+<img src ="https://media3.giphy.com/media/gijRTJHNMniKI/giphy.gif?cid=ecf05e47qu2kwj1sdvxq5uwjlkpjwrct9rqt26uicug5vexo&rid=giphy.gif&ct=g">
 
 
 ---
